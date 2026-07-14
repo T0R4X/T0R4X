@@ -33,10 +33,6 @@
   
   ![](https://github.com/T0R4X/testingreadme-/blob/54e51bb3969cbf25d2052a77d70002b6f7f91bcc/ratsratsrats.gif)
 
-<p align="side">
-  <a
-
-  $${\color{#70200a} .}$$
 
   
 <p align="left">
