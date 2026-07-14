@@ -1,16 +1,52 @@
-## Hi there 👋
+<p align="center">
+  <a
 
-<!--
-**T0R4X/T0R4X** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  ![](https://github.com/T0R4X/testingreadme-/blob/02b4353285f5222bea1df30ed0e73328b841066f/XOQGIIERISJCRMD7D4ODKJ6SMUUDOAN2.gif)
+  
 
-Here are some ideas to get you started:
+    
+    
+![](https://github.com/T0R4X/testingreadme-/blob/647d5d0d5bfef5ced5c16c40619b94212dbbe010/Untitled28_20260714231100.png)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+<p align="right">
+  <a
+
+  ![](https://github.com/T0R4X/testingreadme-/blob/b2c726fb2bb07849d6d198a763f9b2e1a60f0016/0229-roses.gif)
+
+<p align="left">
+  <a
+
+  ![](https://github.com/T0R4X/testingreadme-/blob/5d77695666209b8d8f60589304b0e80341c42c7a/syringeblood.png)
+
+
+<p align="left">
+  <a
+
+  
+  ![](https://github.com/T0R4X/testingreadme-/blob/093765a773bebda211704fcad40ba55f002ffdc5/lovepartner.gif)
+
+  
+<p align="right">
+  <a
+  
+  ![](https://github.com/T0R4X/testingreadme-/blob/54e51bb3969cbf25d2052a77d70002b6f7f91bcc/ratsratsrats.gif)
+
+<p align="side">
+  <a
+
+  $${\color{#70200a} .}$$
+
+  
+<p align="left">
+  <a
+    
+  ![](https://github.com/T0R4X/testingreadme-/blob/68d3a0e1408cf0b205a948fd50496cb26f0a7625/ZJFF4W6WVLMR6CTGOCKGSTT2FC3IXKSI.gif)
+
+
+<p align="center">
+  <a
+  
+  ![](https://github.com/T0R4X/testingreadme-/blob/29dfd0d0475d77989d9412e72422655293736a40/heartbeat2.gif)
+  
