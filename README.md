@@ -1,7 +1,8 @@
 <p align="center">
   <a
 
-  $${\color{#70200a} ෆ ˚ ︶︶.︶︶-︶︶.︶ෆ︶.︶︶-︶︶.︶︶ ˚ ෆ}$$
+  
+  *ෆ ˚ ︶︶.︶︶-︶︶.︶ෆ︶.︶︶-︶︶.︶︶ ˚ ෆ*
   
 
 <p align="center">
@@ -58,5 +59,4 @@
 <p align="left">
   <a
 
-  $${\color{#70200a} readme\ best\ viewed\ on\ desktop\ or\ mobile\ Idont\ fuckin\ g\ know}$$
-  
+  i will finish this soon dont execute me
