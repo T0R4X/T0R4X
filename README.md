@@ -45,4 +45,10 @@
   <a
   
   ![](https://github.com/T0R4X/testingreadme-/blob/29dfd0d0475d77989d9412e72422655293736a40/heartbeat2.gif)
+
+
+<p align="left">
+  <a
+
+  $${\color{#70200a} readme\ best\ viewed\ in\ desktop}$$
   
