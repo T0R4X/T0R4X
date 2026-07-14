@@ -58,5 +58,5 @@
 <p align="left">
   <a
 
-  $${\color{#70200a} readme\ best\ viewed\ in\ desktop}$$
+  $${\color{#70200a} readme\ best\ viewed\ on\ desktop\ or\ mobile\ Idont\ fuckin\ g\ know}$$
   
