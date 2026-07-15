@@ -48,7 +48,7 @@
   ![](https://github.com/T0R4X/testingreadme-/blob/68d3a0e1408cf0b205a948fd50496cb26f0a7625/ZJFF4W6WVLMR6CTGOCKGSTT2FC3IXKSI.gif)
 
 
-<p align="right">
+<p align="center">
   <a
   
   ![](https://github.com/T0R4X/README/blob/e5e9ba2099092b85b98d46d9cfa3642a2ac2e786/OXN3LWJC2KVQQCCOQEQ735PNOSWTWPAD.gif)
@@ -82,3 +82,5 @@
   <a
 
   i will finish this soon dont execute me
+
+  (readme best viewed in mobile)
