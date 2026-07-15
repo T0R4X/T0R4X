@@ -51,7 +51,7 @@
 <p align="center">
   <a
   
-  ![](https://github.com/T0R4X/README/blob/e5e9ba2099092b85b98d46d9cfa3642a2ac2e786/OXN3LWJC2KVQQCCOQEQ735PNOSWTWPAD.gif)
+  ![](https://github.com/T0R4X/testingreadme-/blob/29dfd0d0475d77989d9412e72422655293736a40/heartbeat2.gif)
 
 <p align="left">
   <a
@@ -65,11 +65,10 @@
   *𝙮𝙤𝙪'𝙡𝙡 𝙗𝙚 𝙞𝙜𝙣𝙤𝙧𝙚𝙙 (𝙢𝙖𝙮 𝙖𝙨𝙬𝙚𝙡𝙡 𝙗𝙡𝙤𝙘𝙠𝙚𝙙 𝙩𝙤𝙤.)!*
 
 
-
 <p align="center">
   <a
   
-  ![](https://github.com/T0R4X/testingreadme-/blob/29dfd0d0475d77989d9412e72422655293736a40/heartbeat2.gif)
+  ![](https://github.com/T0R4X/README/blob/e5e9ba2099092b85b98d46d9cfa3642a2ac2e786/OXN3LWJC2KVQQCCOQEQ735PNOSWTWPAD.gif)
 
 
 <p align="right">
