@@ -40,9 +40,13 @@
 
 <p align="left">
   <a
-
   
   ![](https://github.com/T0R4X/testingreadme-/blob/093765a773bebda211704fcad40ba55f002ffdc5/lovepartner.gif)
+
+<p align="left">
+  <a
+
+  *^ 𑣲 @L0WSPIRITS 𝖬𝖸 𝖧𝖠𝖭𝖣𝖲𝖮𝖬𝖤 𝖱𝖮𝖦𝖴𝖤𝖤𝖤 <𝟑*
 
 <p align="center">
   <a
