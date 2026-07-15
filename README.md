@@ -46,7 +46,7 @@
 <p align="left">
   <a
 
-  *^ 𑣲 @L0WSPIRITS 𝖬𝖸 𝖧𝖠𝖭𝖣𝖲𝖮𝖬𝖤 𝖱𝖮𝖦𝖴𝖤𝖤𝖤 <𝟑*
+  *^ [ᰔDove !](https://github.com/L0WSPIRITS) 𝖬𝖸 𝖧𝖠𝖭𝖣𝖲𝖮𝖬𝖤 𝖱𝖮𝖦𝖴𝖤𝖤𝖤 <𝟑*
 
 <p align="center">
   <a
