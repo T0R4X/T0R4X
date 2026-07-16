@@ -16,6 +16,11 @@
 ![](https://github.com/T0R4X/testingreadme-/blob/647d5d0d5bfef5ced5c16c40619b94212dbbe010/Untitled28_20260714231100.png)
 
 
+<p align="left">
+  <a
+  
+  [𝜗ৎʜᴇᴀᴠʏᴍᴇᴅɪᴄ](https://guns.lol/t0r4x) ⠀ ⠀ [𝜗ৎᴇɴ.ᴘʀᴏɴᴏᴜɴꜱ](https://en.pronouns.page/@T0R4X)
+
 <p align="right">
   <a
 
@@ -46,7 +51,7 @@
 <p align="left">
   <a
 
-  *^ [ᰔDove !](https://github.com/L0WSPIRITS) 𝖬𝖸 𝖧𝖠𝖭𝖣𝖲𝖮𝖬𝖤 𝖱𝖮𝖦𝖴𝖤𝖤𝖤 <𝟑*
+  *^ [ᰔ𝑫𝒐𝒗𝒆 !](https://github.com/L0WSPIRITS) 𝖬𝖸 𝖧𝖠𝖭𝖣𝖲𝖮𝖬𝖤 𝖱𝖮𝖦𝖴𝖤𝖤𝖤 <𝟑*
 
 <p align="center">
   <a
