@@ -13,7 +13,7 @@
 
     
     
-![](https://github.com/T0R4X/testingreadme-/blob/647d5d0d5bfef5ced5c16c40619b94212dbbe010/Untitled28_20260714231100.png)
+![](https://github.com/T0R4X/T0R4X/blob/0cc3f6b3d4c681cef9ead0f9448f4c6cd792977d/Untitled30_20260717012537.png)
 
 
 <p align="left">
