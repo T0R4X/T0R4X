@@ -21,11 +21,6 @@
   
   [𝜗ৎʜᴇᴀᴠʏᴍᴇᴅɪᴄ](https://guns.lol/t0r4x) ⠀ ⠀ [𝜗ৎᴇɴ.ᴘʀᴏɴᴏᴜɴꜱ](https://en.pronouns.page/@T0R4X)
 
-<p align="right">
-  <a
-
-  ![](https://github.com/T0R4X/README/blob/f8b88042c0ed9e6793cb40ff90e1d0a9497c5f01/eternally.gif)
-
 <p align="left">
   <a
 
@@ -46,7 +41,7 @@
 <p align="left">
   <a
   
-  ![](https://github.com/T0R4X/testingreadme-/blob/093765a773bebda211704fcad40ba55f002ffdc5/lovepartner.gif)
+  ![](https://github.com/T0R4X/testingreadme-/blob/093765a773bebda211704fcad40ba55f002ffdc5/lovepartner.gif) ⠀ ⠀ ![](https://github.com/T0R4X/README/blob/f8b88042c0ed9e6793cb40ff90e1d0a9497c5f01/eternally.gif)
 
 <p align="left">
   <a
