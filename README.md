@@ -75,10 +75,10 @@
   ![](https://github.com/T0R4X/README/blob/e5e9ba2099092b85b98d46d9cfa3642a2ac2e786/OXN3LWJC2KVQQCCOQEQ735PNOSWTWPAD.gif)
 
 
-<p align="right">
+<p align="center">
   <a
   
-  ![](https://github.com/T0R4X/testingreadme-/blob/54e51bb3969cbf25d2052a77d70002b6f7f91bcc/ratsratsrats.gif)
+  ![](https://github.com/T0R4X/T0R4X/blob/8fd0a3ab71ebb3165123113b01a1a2a60b0fff83/crawfish.gif) ⠀ ⠀ ![](https://github.com/T0R4X/testingreadme-/blob/54e51bb3969cbf25d2052a77d70002b6f7f91bcc/ratsratsrats.gif)
 
 
 <p align="left">
