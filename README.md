@@ -33,6 +33,11 @@
 
 <p align="center">
   <a
+    
+  ![](https://github.com/T0R4X/h/blob/0ad3fa05944d117893800d009cd980eb7d1131d0/tumblr_81e9e5e3c3130c5a0058884f4428e99a_6b34228c_1280.png)
+
+<p align="center">
+  <a
 
   ![](https://github.com/T0R4X/testingreadme-/blob/5d77695666209b8d8f60589304b0e80341c42c7a/syringeblood.png)
 
