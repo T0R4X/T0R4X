@@ -21,7 +21,7 @@
   
   [𝜗ৎʜᴇᴀᴠʏᴍᴇᴅɪᴄ](https://guns.lol/t0r4x) ⠀ ⠀ [𝜗ৎᴇɴ.ᴘʀᴏɴᴏᴜɴꜱ](https://en.pronouns.page/@T0R4X)
 
-<p align="left">
+<p align="center">
   <a
 
   ![](https://github.com/T0R4X/testingreadme-/blob/5d77695666209b8d8f60589304b0e80341c42c7a/syringeblood.png)
@@ -38,12 +38,12 @@
 
   *゛𝙈𝙤𝙨𝙩𝙡𝙮 𝙃𝙚/𝙃𝙞𝙢 𝙗𝙪𝙩 𝙖𝙣𝙮 𝙞𝙨 𝙛𝙞𝙣𝙚 ^_^*
 
-<p align="left">
+<p align="center">
   <a
   
   ![](https://github.com/T0R4X/testingreadme-/blob/093765a773bebda211704fcad40ba55f002ffdc5/lovepartner.gif) ⠀ ⠀ ![](https://github.com/T0R4X/README/blob/f8b88042c0ed9e6793cb40ff90e1d0a9497c5f01/eternally.gif)
 
-<p align="left">
+<p align="center">
   <a
 
   *^ [**ꨄ︎𝑫𝒐𝒗𝒆 !**](https://github.com/L0WSPIRITS) 𝖬𝖸 𝖧𝖠𝖭𝖣𝖲𝖮𝖬𝖤 𝖱𝖮𝖦𝖴𝖤𝖤𝖤 <𝟑*
