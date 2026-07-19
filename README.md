@@ -84,6 +84,18 @@
   - *𝘾.𝙃 𝙛𝙧𝙚𝙚𝙡𝙮 𝙖𝙣𝙮𝙩𝙞𝙢𝙚 𝙩𝙤𝙤!!! (𝙪𝙣𝙡𝙚𝙨𝙨 𝙨𝙩𝙖𝙩𝙚𝙙 𝙤𝙧 𝙤𝙛𝙛𝙩𝙗)*
 
 
+  <details open>
+<summary>𝙎𝙩𝙖𝙩𝙪𝙨 𝙢𝙚𝙖𝙣𝙞𝙣𝙜𝙨!!</summary>
+
+🟢 - You may int with me freely and anytime!!
+
+🌙 - Usual offtb, busy or playing something,, int is okay also!!
+
+⛔️ - Mostly Dni/s in name . You may NOT approach nor int with me (while sometimes with oomfs) unless i int'ed you first
+
+</details>
+
+
 <p align="center">
   <a
   
