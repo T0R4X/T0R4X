@@ -18,6 +18,16 @@
     
 ![](https://github.com/T0R4X/T0R4X/blob/0cc3f6b3d4c681cef9ead0f9448f4c6cd792977d/Untitled30_20260717012537.png)
 
+<p align="left">
+  <a
+
+  ![](https://github.com/T0R4X/h/blob/11e4e3c0d2975200bb6d29a96b75cea5356d7e47/tumblr_d56b444406414c85ce7ec92937c4b7c4_b43d4973_75.webp) ⠀ ⠀ 
+
+
+<p align="right">
+  <a
+  
+  ![](https://github.com/T0R4X/h/blob/11e4e3c0d2975200bb6d29a96b75cea5356d7e47/tumblr_9805faa2f0baa45d800e62a0b11e681f_9334fbd6_100.webp)
 
 <p align="left">
   <a
