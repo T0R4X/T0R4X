@@ -21,7 +21,7 @@
 <p align="left">
   <a
   
-  [𝜗ৎʜᴇᴀᴠʏᴍᴇᴅɪᴄ](https://guns.lol/t0r4x) ⠀ ⠀ [𝜗ৎᴇɴ.ᴘʀᴏɴᴏᴜɴꜱ](https://en.pronouns.page/@T0R4X) ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ![](https://github.com/T0R4X/h/blob/11e4e3c0d2975200bb6d29a96b75cea5356d7e47/tumblr_9805faa2f0baa45d800e62a0b11e681f_9334fbd6_100.webp)
+  [𝜗ৎʜᴇᴀᴠʏᴍᴇᴅɪᴄ](https://guns.lol/t0r4x) ⠀ ⠀ [𝜗ৎᴇɴ.ᴘʀᴏɴᴏᴜɴꜱ](https://en.pronouns.page/@T0R4X)
 
 <p align="center">
   <a
@@ -66,6 +66,12 @@
   <a
   
   ![](https://github.com/T0R4X/testingreadme-/blob/68d3a0e1408cf0b205a948fd50496cb26f0a7625/ZJFF4W6WVLMR6CTGOCKGSTT2FC3IXKSI.gif)
+
+
+<p align="center">
+  <a
+    
+   ![](https://github.com/T0R4X/h/blob/11e4e3c0d2975200bb6d29a96b75cea5356d7e47/tumblr_9805faa2f0baa45d800e62a0b11e681f_9334fbd6_100.webp)
 
 
 <p align="center">
