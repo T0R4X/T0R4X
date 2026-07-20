@@ -20,19 +20,8 @@
 
 <p align="left">
   <a
-
-  ![](https://github.com/T0R4X/h/blob/11e4e3c0d2975200bb6d29a96b75cea5356d7e47/tumblr_d56b444406414c85ce7ec92937c4b7c4_b43d4973_75.webp) ⠀ ⠀ 
-
-
-<p align="right">
-  <a
   
-  ![](https://github.com/T0R4X/h/blob/11e4e3c0d2975200bb6d29a96b75cea5356d7e47/tumblr_9805faa2f0baa45d800e62a0b11e681f_9334fbd6_100.webp)
-
-<p align="left">
-  <a
-  
-  [𝜗ৎʜᴇᴀᴠʏᴍᴇᴅɪᴄ](https://guns.lol/t0r4x) ⠀ ⠀ [𝜗ৎᴇɴ.ᴘʀᴏɴᴏᴜɴꜱ](https://en.pronouns.page/@T0R4X)
+  [𝜗ৎʜᴇᴀᴠʏᴍᴇᴅɪᴄ](https://guns.lol/t0r4x) ⠀ ⠀ [𝜗ৎᴇɴ.ᴘʀᴏɴᴏᴜɴꜱ](https://en.pronouns.page/@T0R4X) ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀ ![](https://github.com/T0R4X/h/blob/11e4e3c0d2975200bb6d29a96b75cea5356d7e47/tumblr_9805faa2f0baa45d800e62a0b11e681f_9334fbd6_100.webp)
 
 <p align="center">
   <a
