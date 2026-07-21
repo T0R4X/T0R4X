@@ -107,11 +107,11 @@
   ![](https://github.com/T0R4X/h/blob/5f1e2dff7dfed6ba222a73ffafbd1bee43fccd56/tumblr_d175087b688ff4bbe597a4837a0fbf9d_fc4a72b6_1280.png)
 
 
-<p align="center">
+<p align="right">
   <a
   
   ![](https://github.com/T0R4X/T0R4X/blob/8fd0a3ab71ebb3165123113b01a1a2a60b0fff83/crawfish.gif) ⠀ ⠀ ![](https://github.com/T0R4X/testingreadme-/blob/54e51bb3969cbf25d2052a77d70002b6f7f91bcc/ratsratsrats.gif)
-
+⠀
 
 <p align="left">
   <a
