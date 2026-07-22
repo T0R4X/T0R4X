@@ -8,13 +8,15 @@
   <a
 
   ![](https://github.com/T0R4X/h/blob/0ad3fa05944d117893800d009cd980eb7d1131d0/tumblr_8283675b1863125eaa3dd8bd2cef0311_e513165d_2048.png)
-
-  
-    
-  ![](https://github.com/T0R4X/testingreadme-/blob/02b4353285f5222bea1df30ed0e73328b841066f/XOQGIIERISJCRMD7D4ODKJ6SMUUDOAN2.gif)
   
 
-    
+
+
+<p align="center">
+  <a
+
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=JetBrains+Mono&size=17&duration=7600&pause=580&color=C41E3A&right=true&vright=true&width=1000&lines=I+can+still+remember+you+sitting+in+the+kitchen,;Laughing+in+the+distance,+darling.;I+shouldn't+miss+it+but+it+used+to+thrill+me,;I+guess+I+miss+it.+You+exist+to+kill+me.;So+lock+me+up,;toss+the+key,;wash+away+the+sins+at+mass.;Little+rats+might+set+you+free,;But--;Here+come+the+cats.)](https://git.io/typing-svg)
+
     
 ![](https://github.com/T0R4X/T0R4X/blob/0cc3f6b3d4c681cef9ead0f9448f4c6cd792977d/Untitled30_20260717012537.png)
 
