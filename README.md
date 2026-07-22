@@ -15,7 +15,7 @@
 <p align="center">
   <a
 
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=JetBrains+Mono&size=17&duration=7600&pause=580&color=C41E3A&right=true&vright=true&width=1000&lines=I+can+still+remember+you+sitting+in+the+kitchen,;Laughing+in+the+distance,+darling.;I+shouldn't+miss+it+but+it+used+to+thrill+me,;I+guess+I+miss+it.+You+exist+to+kill+me.;So+lock+me+up,;toss+the+key,;wash+away+the+sins+at+mass.;Little+rats+might+set+you+free,;But--;Here+come+the+cats.)](https://git.io/typing-svg)
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=JetBrains+Mono&size=17&duration=7600&pause=330&color=C41E3A&right=true&vright=true&width=1000&lines=I+can+still+remember+you+sitting+in+the+kitchen,;Laughing+in+the+distance,+darling.;I+shouldn't+miss+it+but+it+used+to+thrill+me,;I+guess+I+miss+it.+You+exist+to+kill+me.;So+lock+me+up,;toss+the+key,;wash+away+the+sins+at+mass.;Little+rats+might+set+you+free,;But--;Here+come+the+cats.)](https://git.io/typing-svg)
 
     
 ![](https://github.com/T0R4X/T0R4X/blob/0cc3f6b3d4c681cef9ead0f9448f4c6cd792977d/Untitled30_20260717012537.png)
