@@ -37,12 +37,10 @@
     
   ![](https://github.com/T0R4X/forreadme/blob/5ddb43c296d51f5553eb5b0f2b6f4cdb11ab9449/tumblr_e5120f0b23e96db7a0f6b66bf1a1c61c_12f35369_2048.png)
 
+
 <p align="center">
-  <a
-
-  ![](https://github.com/T0R4X/testingreadme-/blob/5d77695666209b8d8f60589304b0e80341c42c7a/syringeblood.png)
-
-
+  <img src="https://raw.githubusercontent.com/T0R4X/forreadme/5d77695666209b8d8f60589304b0e80341c42c7a/syringeblood.png" alt="Syringe Blood" width="650">
+</p>
 
 <p align="center">
   <a
