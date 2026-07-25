@@ -1,7 +1,7 @@
 <p align="center">
   <a
 
-  ![](https://github.com/T0R4X/h/blob/0ad3fa05944d117893800d009cd980eb7d1131d0/tumblr_98bcaa05ea12a5d99c55ed97e17e01e0_3d4b8338_1280.png)
+  ![](https://github.com/T0R4X/forreadme/blob/5ddb43c296d51f5553eb5b0f2b6f4cdb11ab9449/tumblr_eafcef653aa83b67bb0796c95a630dec_a8df819d_2048.webp)
   
 
 <p align="center">
@@ -35,7 +35,7 @@
 <p align="center">
   <a
     
-  ![](https://github.com/T0R4X/h/blob/0ad3fa05944d117893800d009cd980eb7d1131d0/tumblr_81e9e5e3c3130c5a0058884f4428e99a_6b34228c_1280.png)
+  ![](https://github.com/T0R4X/forreadme/blob/5ddb43c296d51f5553eb5b0f2b6f4cdb11ab9449/tumblr_e5120f0b23e96db7a0f6b66bf1a1c61c_12f35369_2048.png)
 
 <p align="center">
   <a
@@ -126,13 +126,17 @@
   [**ᰔ𝙍𝙖𝙮**](https://github.com/SwansSorrow)⠀ ⠀[**ᰔ𝙉𝙖𝙞𝙖**](https://github.com/AngelicDeceit)⠀ ⠀[**ᰔ𝙄𝙢𝙤𝙧**](https://github.com/ChimoryX)⠀ ⠀[**ᰔ𝙍𝙖𝙞𝙣𝙮**](https://github.com/rainyourday)⠀ ⠀[**ᰔ𝙈𝙚𝙞**](https://github.com/Eun0i4Xd)
   
 
+<p align="center">
+  <img src="https://raw.githubusercontent.com/T0R4X/forreadme/5ddb43c296d51f5553eb5b0f2b6f4cdb11ab9449/tumblr_fb7593558dd577774d496a8ab5247985_e346705a_2048.webp" alt="Banner" width="550">
+</p>
+
 ***
 
 
 <p align="center">
   <a
 
-  ![](https://github.com/T0R4X/forreadme/blob/02caf57c5a4ea02d26ac44273b8fa02ca8dce8f4/tumblr_85c40a4932d60cb5b1f97fdb4d6f4dda_d6c1741d_1280.png)
+  ![](https://github.com/T0R4X/forreadme/blob/5ddb43c296d51f5553eb5b0f2b6f4cdb11ab9449/tumblr_c9499a8e05f45607191893f86b1750fc_efed3770_2048.png)
 
 ***
     
@@ -148,7 +152,7 @@
 <p align="center">
   <a
 
-  ![](https://github.com/T0R4X/h/blob/0ad3fa05944d117893800d009cd980eb7d1131d0/tumblr_7a3db7f408c6773151900974c2d8890a_46ba9d58_1280.png)
+  ![](https://github.com/T0R4X/forreadme/blob/5ddb43c296d51f5553eb5b0f2b6f4cdb11ab9449/tumblr_41047cbc7bec2c1c500ad43387af29c7_f57c5f2d_2048.png)
 
 
 ***
