@@ -23,7 +23,7 @@
 <p align="left">
   <a
   
-  [𝜗ৎʜᴇᴀᴠʏᴍᴇᴅɪᴄ](https://guns.lol/t0r4x) ⠀ ⠀ [𝜗ৎᴇɴ.ᴘʀᴏɴᴏᴜɴꜱ](https://en.pronouns.page/@T0R4X)
+  [𝜗ৎʜᴇᴀᴠʏᴍᴇᴅɪᴄ](https://guns.lol/t0r4x) ⠀ ⠀ [𝜗ৎᴇɴ.ᴘʀᴏɴᴏᴜɴꜱ](https://en.pronouns.page/@T0R4X) ⠀ ⠀ [𝜗ৎꜱɪɢɴ ᴍʏ ᴡᴀʟʟ!](https://walloftext.co/drludwigswhiteboard)
 
 <p align="center">
   <a
