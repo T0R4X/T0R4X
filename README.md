@@ -20,7 +20,7 @@
     
 ![](https://github.com/T0R4X/T0R4X/blob/0cc3f6b3d4c681cef9ead0f9448f4c6cd792977d/Untitled30_20260717012537.png)
 
-<p align="left">
+<p align="center">
   <a
   
   [𝜗ৎʜᴇᴀᴠʏᴍᴇᴅɪᴄ](https://guns.lol/t0r4x) ⠀ ⠀ [𝜗ৎᴇɴ.ᴘʀᴏɴᴏᴜɴꜱ](https://en.pronouns.page/@T0R4X) ⠀ ⠀ [𝜗ৎꜱɪɢɴ ᴍʏ ᴡᴀʟʟ!](https://walloftext.co/drludwigswhiteboard)
