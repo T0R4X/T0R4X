@@ -100,6 +100,10 @@
 
 </details>
 
+<p align="center">
+  <a
+
+  (( Please tell me right away if I'm following anyone problematic !! I don't check my github often（´-｀''）))
 
 <p align="center">
   <a
