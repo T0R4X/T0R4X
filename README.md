@@ -94,9 +94,9 @@
 
 🟢 - You may int with me freely and anytime!!
 
-🌙 - Usual offtb, busy or playing something (sometimes with dni/s) ,, int n cxh is okay also!!
+🌙 - Mostly used and usually offtb, busy or playing something (sometimes with dni/s) ,, int n cxh is okay also!!
 
-⛔️ - Mostly Dni/s in name . You may NOT approach nor int with me (while sometimes with oomfs) unless i int'ed you first
+⛔️ - Mostly Dni/s in name . You may NOT approach nor int with me unless I do first .
 
 </details>
 
