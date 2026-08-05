@@ -96,7 +96,7 @@
 
 🌙 - Mostly used and usually offtb, busy or playing something (sometimes with dni/s) ,, int n cxh is okay also!!
 
-⛔️ - Mostly Dni/s in name . You may NOT approach nor int with me unless I do first .
+⛔️ - Mostly Dni/s in name (or not) . You may NOT approach nor int with me unless I do first .
 
 </details>
 
