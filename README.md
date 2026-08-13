@@ -115,11 +115,6 @@
 
 <p align="right">
   <a
-    
-  [@couple-town!](https://github.com/couple-town) ⠀ ⠀ [@pt-friendships!](https://github.com/pt-friendships)
-
-<p align="right">
-  <a
   
   ![](https://github.com/T0R4X/T0R4X/blob/8fd0a3ab71ebb3165123113b01a1a2a60b0fff83/crawfish.gif) ⠀ ⠀ ![](https://github.com/T0R4X/testingreadme-/blob/54e51bb3969cbf25d2052a77d70002b6f7f91bcc/ratsratsrats.gif)
 ⠀
@@ -138,6 +133,14 @@
 <p align="center">
   <img src="https://raw.githubusercontent.com/T0R4X/forreadme/5ddb43c296d51f5553eb5b0f2b6f4cdb11ab9449/tumblr_fb7593558dd577774d496a8ab5247985_e346705a_2048.webp" alt="Banner" width="550">
 </p>
+
+
+<p align="right">
+  <a
+  
+  [@couple-town!](https://github.com/couple-town) [@pt-friendships!](https://github.com/pt-friendships) [@ship-town!](https://github.com/ship-town)
+
+
 
 ***
 
