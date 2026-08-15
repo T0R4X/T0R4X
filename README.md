@@ -107,10 +107,20 @@
 
   (( Please tell me right away if I'm following anyone problematic !! I don't check my github often（´-｀''）))
 
+
+***
+
+
+<p align="center">
+  <a
+    
+  [@ship-town!](https://github.com/ship-town) ⠀[@cosplaytown! (Medic)](https://github.com/cosplaytown) ⠀[@FOLKTOWN! (Medic)](https://github.com/FOLKTOWN) ⠀[@ponytowncosplayers! (Medic)](https://github.com/ponytowncosplayers) ⠀[@ponyachievements!(Truman)](https://github.com/ponychievements)
+
 <p align="center">
   <a
   
   ![](https://github.com/T0R4X/h/blob/5f1e2dff7dfed6ba222a73ffafbd1bee43fccd56/tumblr_d175087b688ff4bbe597a4837a0fbf9d_fc4a72b6_1280.png)
+
 
 
 <p align="right">
@@ -135,10 +145,10 @@
 </p>
 
 
-<p align="right">
+<p align="center">
   <a
   
-  [@couple-town!](https://github.com/couple-town) [@pt-friendships!](https://github.com/pt-friendships) [@ship-town!](https://github.com/ship-town)
+  [@couple-town!](https://github.com/couple-town) [@pt-friendships!](https://github.com/pt-friendships)
 
 
 
