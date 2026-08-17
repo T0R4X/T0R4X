@@ -4,39 +4,23 @@
   ![](https://github.com/T0R4X/forreadme/blob/5ddb43c296d51f5553eb5b0f2b6f4cdb11ab9449/tumblr_eafcef653aa83b67bb0796c95a630dec_a8df819d_2048.webp)
   
 
-<p align="center">
-  <a
-
-  ![](https://github.com/T0R4X/h/blob/0ad3fa05944d117893800d009cd980eb7d1131d0/tumblr_8283675b1863125eaa3dd8bd2cef0311_e513165d_2048.png)
-  
 
 
-
-<p align="center">
+<p align="right">
   <a
 
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=JetBrains+Mono&size=28&duration=7600&pause=30&color=C41E3A&right=true&vright=true&width=1000&lines=I+can+still+remember+you+sitting+in+the+kitchen,;Laughing+in+the+distance,+darling.;I+shouldn't+miss+it+but+it+used+to+thrill+me,;I+guess+I+miss+it.+You+exist+to+kill+me.;So+lock+me+up,;toss+the+key,;wash+away+the+sins+at+mass.;Little+rats+might+set+you+free,;But--;Here+come+the+cats.)](https://git.io/typing-svg)
 
     
-![](https://github.com/T0R4X/T0R4X/blob/0cc3f6b3d4c681cef9ead0f9448f4c6cd792977d/Untitled30_20260717012537.png)
+![](https://github.com/T0R4X/forreadme/blob/72adf27a7d332e29d2ebeceec8f094d52bd26797/Untitled94_20260816222923.png)
 
 <p align="center">
   <a
   
   [𝜗ৎᴀᴛᴀʙᴏᴏᴋ](https://t0r4x.atabook.org/) ⠀ ⠀ [𝜗ৎʜᴇᴀᴠʏᴍᴇᴅɪᴄ](https://guns.lol/t0r4x) ⠀ ⠀ [𝜗ৎᴇɴ.ᴘʀᴏɴᴏᴜɴꜱ](https://en.pronouns.page/@T0R4X) ⠀ ⠀ [𝜗ৎꜱɪɢɴ ᴍʏ ᴡᴀʟʟ!](https://walloftext.co/drludwigswhiteboard)
 
-<p align="center">
-  <a
-
-  ![](https://github.com/T0R4X/h/blob/0ad3fa05944d117893800d009cd980eb7d1131d0/tumblr_69c414df0f3373f3d0809662098ce5e6_73f60aad_2048.png)
 
 ***
-
-<p align="center">
-  <a
-    
-  ![](https://github.com/T0R4X/forreadme/blob/5ddb43c296d51f5553eb5b0f2b6f4cdb11ab9449/tumblr_e5120f0b23e96db7a0f6b66bf1a1c61c_12f35369_2048.png)
-
 
 <p align="center">
   <img src="https://raw.githubusercontent.com/T0R4X/forreadme/5d77695666209b8d8f60589304b0e80341c42c7a/syringeblood.png" alt="Syringe Blood" width="650">
