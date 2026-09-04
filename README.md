@@ -76,7 +76,7 @@
 
   - *𝘾.𝙃 𝙛𝙧𝙚𝙚𝙡𝙮 𝙖𝙣𝙮𝙩𝙞𝙢𝙚 𝙩𝙤𝙤!!! (𝙪𝙣𝙡𝙚𝙨𝙨 𝙨𝙩𝙖𝙩𝙚𝙙 𝙤𝙧 𝙤𝙛𝙛𝙩𝙗)*
 
-  - *𝘽𝙖𝙨𝙞𝙘 𝘿𝙣𝙞𝙨 , 𝙄 𝙗𝙡𝙤𝙘𝙠 / 𝙝𝙞𝙙𝙚 𝙛𝙧𝙚𝙚𝙡𝙮 !*
+  - *𝙄 𝙗𝙡𝙤𝙘𝙠 / 𝙝𝙞𝙙𝙚 𝙛𝙧𝙚𝙚𝙡𝙮 !*
 
 
   <details open>
@@ -93,6 +93,12 @@
 <p align="center">
   <a
 
+  ⠀ ⠀
+  
+    
+<p align="center">
+  <a
+
   (( Please tell me right away if I'm following anyone problematic !! I don't check my github often（´-｀''）))
 
 
@@ -103,6 +109,18 @@
   <a
     
   [@ship-town!](https://github.com/ship-town) ⠀[@cosplaytown! (Medic)](https://github.com/cosplaytown) ⠀[@FOLKTOWN! (Medic)](https://github.com/FOLKTOWN) ⠀[@ponytowncosplayers! (Medic)](https://github.com/ponytowncosplayers) ⠀[@ponyachievements! (Truman)](https://github.com/ponychievements) [@pt-hall-of-media! (Boris)](https://github.com/pt-hall-of-media) []() []()
+
+
+<p align="center">
+  <a
+
+  ⠀ ⠀
+
+
+<p align="center">
+  <a
+
+  
 
 <p align="center">
   <a
