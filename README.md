@@ -4,7 +4,11 @@
   ![](https://github.com/T0R4X/forreadme/blob/5ddb43c296d51f5553eb5b0f2b6f4cdb11ab9449/tumblr_eafcef653aa83b67bb0796c95a630dec_a8df819d_2048.webp)
   
 
+<p align="center">
+  <a
 
+  I NEEEEEEEED TO REMADE ALL OF THIiiZ SSZZSHHIIIIITT
+  
 
 <p align="right">
   <a
@@ -80,9 +84,9 @@
 
 🟢 - You may int with me freely and anytime!!
 
-🌙 - Mostly used and usually offtb, busy or playing something (sometimes with dni/s) ,, int n cxh is okay also!!
+🌙 - Mostly used and usually offtb, busy or playing something (sometimes with dni/s) ,, int and cxh unless stated otherwise
 
-⛔️ - Mostly Dni/s in name (or not) . You may NOT approach nor int with me unless I do first .
+⛔️ - Mostly Dni/s in name (or not) . Dniuid/bf , iwcaution .
 
 </details>
 
