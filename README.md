@@ -8,6 +8,8 @@
   <a
 
   I NEEEEEEEED TO REMADE ALL OF THIiiZ SSZZSHHIIIIITT
+
+  dont copy/take inspiration of my skins without permission brah
   
 
 <p align="right">
