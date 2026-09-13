@@ -7,7 +7,7 @@
 <p align="center">
   <a
 
-  I NEEEEEEEED TO REMADE ALL OF THIiiZ SSZZSHHIIIIITT
+  I NEEEEEEEED TO REMADE ALL OF THIiiZ SSZZSHHIIIIITT BRUH
 
   dont copy/take inspiration of my skins without permission brah
   
@@ -78,6 +78,8 @@
   - *𝘾.𝙃 𝙛𝙧𝙚𝙚𝙡𝙮 𝙖𝙣𝙮𝙩𝙞𝙢𝙚 𝙩𝙤𝙤!!! (𝙪𝙣𝙡𝙚𝙨𝙨 𝙨𝙩𝙖𝙩𝙚𝙙 𝙤𝙧 𝙤𝙛𝙛𝙩𝙗)*
 
   - *𝙄 𝙗𝙡𝙤𝙘𝙠 / 𝙝𝙞𝙙𝙚 𝙛𝙧𝙚𝙚𝙡𝙮 !*
+
+  - *Note , I am diagnosed with mild autism and I CANNOT control my anger so i may lash out at you, I'm sorry if this ever happens*
 
 
   <details open>
