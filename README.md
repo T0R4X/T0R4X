@@ -79,7 +79,15 @@
 
   - *𝙄 𝙗𝙡𝙤𝙘𝙠 / 𝙝𝙞𝙙𝙚 𝙛𝙧𝙚𝙚𝙡𝙮 !*
 
-  #### *Note :*
+
+<p align="center">
+  <a
+
+  ⠀ ⠀
+  
+
+
+  ### *Note :*
 
   *I am diagnosed with mild autism*
 
@@ -90,11 +98,11 @@
   *I show signs that I hate you ok? ok* **(party not included they are cool)**
 
 
-<p align="left">
+<p align="center">
   <a
 
-   
-
+  ⠀ ⠀
+  
 
   <details open>
 <summary>𝙎𝙩𝙖𝙩𝙪𝙨 𝙢𝙚𝙖𝙣𝙞𝙣𝙜𝙨!!</summary>
