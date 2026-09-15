@@ -90,6 +90,12 @@
   *I show signs that I hate you ok? ok* **(party not included they are cool)**
 
 
+<p align="left">
+  <a
+
+   
+
+
   <details open>
 <summary>𝙎𝙩𝙖𝙩𝙪𝙨 𝙢𝙚𝙖𝙣𝙞𝙣𝙜𝙨!!</summary>
 
