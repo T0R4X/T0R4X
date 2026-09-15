@@ -79,7 +79,15 @@
 
   - *𝙄 𝙗𝙡𝙤𝙘𝙠 / 𝙝𝙞𝙙𝙚 𝙛𝙧𝙚𝙚𝙡𝙮 !*
 
-  - *Note , I am diagnosed with mild autism and I CANNOT control my anger so I may lash out at you, I'm sorry if this ever happens*
+  #### *Note :*
+
+  *I am diagnosed with mild autism*
+
+  *I CANNOT control my anger so I may lash out at you, I'm sorry if this ever happens*
+
+  *Stuttering skittish thing*
+
+  *I show signs that I hate you ok? ok* **(party not included they are cool)**
 
 
   <details open>
