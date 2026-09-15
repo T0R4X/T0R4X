@@ -86,8 +86,8 @@
   ⠀ ⠀
   
 
-
-  ### *Note :*
+  ```
+  ### *<ins>Note</ins> :*
 
   *I am diagnosed with mild autism*
 
@@ -95,8 +95,9 @@
 
   *Stuttering skittish thing*
 
-  *I show signs that I hate you ok? ok* **(party not included they are cool)**
+  *I can show signs that I hate you ok? ok* **(party not included they are cool)**
 
+  ```
 
 <p align="center">
   <a
