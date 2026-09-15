@@ -86,10 +86,9 @@
   ⠀ ⠀
   
 
-  ```
   ### *<ins>Note</ins> :*
 
-  *I am diagnosed with mild autism*
+  *Diagnosed with mild autism*
 
   *I CANNOT control my anger so I may lash out at you, I'm sorry if this ever happens*
 
@@ -97,7 +96,7 @@
 
   *I can show signs that I hate you ok? ok* **(party not included they are cool)**
 
-  ```
+  
 
 <p align="center">
   <a
@@ -124,8 +123,10 @@
     
 <p align="center">
   <a
-
+  
+  ```
   (( Please tell me right away if I'm following anyone problematic !! I don't check my github often（´-｀''）))
+  ```
 
 
 ***
