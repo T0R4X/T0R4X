@@ -71,9 +71,9 @@
 <p align="left">
   <a
 
-  - *𝙄 𝙖𝙢 20+ 𝙖𝙣𝙙 𝙚𝙢𝙥𝙡𝙤𝙮𝙚𝙙 𝙨𝙤 𝙄'𝙢 𝙣𝙤𝙩 𝙫𝙚𝙧𝙮 𝙢𝙪𝙘𝙝 𝙖𝙘𝙩𝙞𝙫𝙚 𝙤𝙣 𝙥𝙩,,,*
+  - *20+ . not very active on pt (maybe),,,*
   
-  - *𝙄𝙣𝙩 𝙬𝙞𝙩𝙝 𝙢𝙚!! 𝙄'𝙢 𝙫𝙚𝙧𝙮 𝙛𝙧𝙞𝙚𝙣𝙙𝙡𝙮 (ᵗʰᵒᵘᵍʰ, ᴵ'ᵐ ᵛᵉʳʸ ᵃʷᵏʷᵃʳᵈ ᵃⁿᵈ ˡᵃᶜᵏ ᵒᶠ ʷᵒʳᵈˢ ʷʰᵉⁿ ᵗᵃˡᵏⁱⁿᵍ ᵗᵒ ⁿᵉʷ ᶠʳⁱᵉⁿᵈˢ ᵒʳ ˢᵗʳᵃⁿᵍᵉʳˢ ᵖˡˢ ᵇᵃʳᵉ ʷⁱᵗʰ ᵐᵉ)*
+  - *INT WITH ME!! I don't bite ^o^^ (ᵗʰᵒᵘᵍʰ, ᴵ'ᵐ ᵛᵉʳʸ ᵃʷᵏʷᵃʳᵈ ᵃⁿᵈ ˡᵃᶜᵏ ᵒᶠ ʷᵒʳᵈˢ ʷʰᵉⁿ ᵗᵃˡᵏⁱⁿᵍ ᵗᵒ ⁿᵉʷ ᶠʳⁱᵉⁿᵈˢ ᵒʳ ˢᵗʳᵃⁿᵍᵉʳˢ ᵖˡˢ ᵇᵃʳᵉ ʷⁱᵗʰ ᵐᵉ)*
 
   - *𝘾.𝙃 𝙛𝙧𝙚𝙚𝙡𝙮 𝙖𝙣𝙮𝙩𝙞𝙢𝙚 𝙩𝙤𝙤!!! (𝙪𝙣𝙡𝙚𝙨𝙨 𝙨𝙩𝙖𝙩𝙚𝙙 𝙤𝙧 𝙤𝙛𝙛𝙩𝙗)*
 
@@ -102,7 +102,7 @@
 
   *Stuttering skittish thing*
 
-  *I can show signs that I hate you ok? ok* **(party not included they are cool)**
+  *I can show signs that I hate you ok? ok. no this is not a joke i can hate you even if you are a friend of mine* **(party not included they are cool)**
 
   
 
@@ -117,9 +117,9 @@
 
 🟢 - You may int with me freely and anytime!!
 
-🌙 - Mostly used and usually offtb, busy or playing something (sometimes with dni/s) ,, int and cxh unless stated otherwise
+🌙 - Always on this ,  usually offtb, busy, gaming (sometimes with dni/s) ,, int and cxh unless stated otherwise
 
-⛔️ - Mostly Dni/s in name (or not) . Dniuid/bf , iwcaution .
+⛔️ - Dni/s in name (or not) . Dniuid/bf (Mostly) , iwcaution .
 
 </details>
 
