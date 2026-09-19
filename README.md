@@ -102,7 +102,8 @@
 
   *Stuttering skittish thing*
 
-  *I can show signs that I hate you ok? ok. no this is not a joke i can hate you even if you are a friend of mine* **(party not included they are cool)**
+  *I can show signs that I hate you ok? ok. no this is not a joke i can hate you even if*
+  *you are a friend of mine* **(party not included they are cool)**
 
   
 
