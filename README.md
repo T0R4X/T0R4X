@@ -75,9 +75,9 @@
   
   - *INT WITH ME!! I don't bite ^o^^ (ᵗʰᵒᵘᵍʰ, ᴵ'ᵐ ᵛᵉʳʸ ᵃʷᵏʷᵃʳᵈ ᵃⁿᵈ ˡᵃᶜᵏ ᵒᶠ ʷᵒʳᵈˢ ʷʰᵉⁿ ᵗᵃˡᵏⁱⁿᵍ ᵗᵒ ⁿᵉʷ ᶠʳⁱᵉⁿᵈˢ ᵒʳ ˢᵗʳᵃⁿᵍᵉʳˢ ᵖˡˢ ᵇᵃʳᵉ ʷⁱᵗʰ ᵐᵉ)*
 
-  - *𝘾.𝙃 𝙛𝙧𝙚𝙚𝙡𝙮 𝙖𝙣𝙮𝙩𝙞𝙢𝙚 𝙩𝙤𝙤!!! (𝙪𝙣𝙡𝙚𝙨𝙨 𝙨𝙩𝙖𝙩𝙚𝙙 𝙤𝙧 𝙤𝙛𝙛𝙩𝙗)*
+  - *C.H freely anytime!!!* **(unless stated / offtb , may C.H freely only if party)**
 
-  - *𝙄 𝙗𝙡𝙤𝙘𝙠 / 𝙝𝙞𝙙𝙚 𝙛𝙧𝙚𝙚𝙡𝙮 !*
+  - *I block & hide freely*
 
 <p align="center">
   <a
