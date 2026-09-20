@@ -105,6 +105,7 @@
   *I tend to say random bs to avoid awkward tension*
 
   *I can show signs that I hate you ok? ok. no this is **not** a joke i can hate you even if you are a friend of mine* **(party not included they are cool)**
+  *Will CRASH OUT so hold me back okpls ok*
 
   *Whenever I'm upset and have iwcare on name and go to your area but distancing away, I expect you to interact first pls*
 
