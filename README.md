@@ -99,13 +99,13 @@
   *Diagnosed with mild autism*
 
   *I CANNOT control my anger so I may lash out at you, I'm sorry if this ever happens*
+  *+ will CRASH OUT out of nowhere so hold me back and calm me down okpls ok*
 
   *Stuttering skittish thing*
 
   *I tend to say random bs to avoid awkward tension*
 
   *I can show signs that I hate you ok? ok. no this is **not** a joke i can hate you even if you are a friend of mine* **(party not included they are cool)**
-  *+ will CRASH OUT out of nowhere so hold me back and calm me down okpls ok*
 
   *Whenever I'm upset and went to your area but distancing away, I expect you to interact first pls*
 
