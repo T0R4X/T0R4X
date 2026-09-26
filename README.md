@@ -103,6 +103,8 @@
 
   *Stuttering skittish thing*
 
+  *I make sxual / brainrot jokes, please let me know if you are uncomfortable with it especially if you're a minor.*
+  
   *I tend to say random bs to avoid awkward tension*
 
   *I can show signs that I hate you ok? ok. no this is **not** a joke i can hate you even if you are a friend of mine* **(party not included they are cool)**
