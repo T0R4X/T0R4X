@@ -4,6 +4,26 @@
   [@ˢʰⁱᵖ-ᵗᵒʷⁿ (ᴴᵉᵃᵛʸᵐᵉᵈⁱᶜ)](https://github.com/ship-town) . [@ᶜᵒˢᵖˡᵃʸᵗᵒʷⁿ (ᴹᵉᵈⁱᶜ)](https://github.com/cosplaytown) . [@ᴾᵒⁿʸᵗᵒʷⁿˢ-ʳᵉʷᵃʳᵈˢ (ᴹᵉᵈⁱᶜ)](https://github.com/Ponytowns-rewards) . [@ᶠᴼᴸᴷᵀᴼᵂᴺ (ᴹᵉᵈⁱᶜ)](https://github.com/FOLKTOWN) . [@ᵖᵒⁿʸᵗᵒʷⁿᶜᵒˢᵖˡᵃʸᵉʳˢ (ᴹᵉᵈⁱᶜ)](https://github.com/ponytowncosplayers) . [@ᵖᵒⁿʸᵃᶜʰⁱᵉᵛᵉᵐᵉⁿᵗˢ (ᵀʳᵘᵐᵃⁿ)](https://github.com/ponychievements) . [@ᵖᵗ-ʰᵃˡˡ-ᵒᶠ-ᵐᵉᵈⁱᵃ (ᴴᵉˡˡ & ʸᵒᵘ)](https://github.com/pt-hall-of-media) . [@ᵗⁱᵗˡᵉʰᵒᵃʳᵈ (ᴹᵉᵈⁱᶜ)](https://github.com/titlehoard) . [@ᵐᵘˢⁱᶜ-ᵗᵒʷⁿ (ᴰʳᶠᵉᵉˡᴳᵒᵒᵈ)](https://github.com/music-town) . [@ᵏᵃᵒᵗᵒʷⁿ (ᴹᵉᵈⁱᶜ)](https://github.com/kaotown) []() []() []() []() []()
 
 
+
+<p align="center">
+  <a
+  
+  [𖹭 @ᴄᴏᴜᴘʟᴇ-ᴛᴏᴡɴ 𖹭](https://github.com/couple-town) . [𖹭 @ᴘᴛ-ꜰʀɪᴇɴᴅꜱʜɪᴘꜱ 𖹭](https://github.com/pt-friendships) . [𖹭 @ᴀᴘᴘʀᴇᴄɪᴀᴛɪᴏɴ-ᴘᴛ 𖹭](https://github.com/appreciation-pt)
+
+
+<p align="center">
+  <a
+
+  ⠀ ⠀
+
+***
+
+
+<p align="center">
+  <a
+
+  ⠀ ⠀
+  
 <p align="center">
   <a
 
@@ -217,17 +237,6 @@
   <img src="https://raw.githubusercontent.com/T0R4X/forreadme/5ddb43c296d51f5553eb5b0f2b6f4cdb11ab9449/tumblr_fb7593558dd577774d496a8ab5247985_e346705a_2048.webp" alt="Banner" width="550">
 </p>
 
-
-<p align="center">
-  <a
-
-  ⠀ ⠀
-
-
-<p align="center">
-  <a
-  
-  [@couple-town!](https://github.com/couple-town) [@pt-friendships!](https://github.com/pt-friendships) [@appreciation-pt𖹭](https://github.com/appreciation-pt)
 
 
 <p align="center">
