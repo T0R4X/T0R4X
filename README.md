@@ -16,7 +16,11 @@
 
   ⠀ ⠀
 
-***
+<p align="center">
+  <a
+    
+   ![](https://files.catbox.moe/qvq2jl.png)
+
 
 
 <p align="center">
@@ -44,13 +48,22 @@
 
   dont copy/take inspiration of my skins without permission brah
   
+<p align="center">
+  <a
+
+  ⠀ ⠀
+
 
 <p align="right">
   <a
 
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=JetBrains+Mono&size=28&duration=7600&pause=30&color=C41E3A&right=true&vright=true&width=1000&lines=I+can+still+remember+you+sitting+in+the+kitchen,;Laughing+in+the+distance,+darling.;I+shouldn't+miss+it+but+it+used+to+thrill+me,;I+guess+I+miss+it.+You+exist+to+kill+me.;So+lock+me+up,;toss+the+key,;wash+away+the+sins+at+mass.;Little+rats+might+set+you+free,;But--;Here+come+the+cats.)](https://git.io/typing-svg)
 
-    
+<p align="center">
+  <a
+
+  ⠀ ⠀
+
 ![](https://github.com/T0R4X/forreadme/blob/72adf27a7d332e29d2ebeceec8f094d52bd26797/Untitled94_20260816222923.png)
 
 <p align="center">
@@ -58,7 +71,22 @@
   
   [𝜗ৎᴀᴛᴀʙᴏᴏᴋ](https://t0r4x.atabook.org/) ⠀ ⠀ [𝜗ৎʜᴇᴀᴠʏᴍᴇᴅɪᴄ](https://guns.lol/t0r4x) ⠀ ⠀ [𝜗ৎᴇɴ.ᴘʀᴏɴᴏᴜɴꜱ](https://en.pronouns.page/@T0R4X) ⠀ ⠀ [𝜗ৎꜱɪɢɴ ᴍʏ ᴡᴀʟʟ!](https://walloftext.co/drludwigswhiteboard)
 
-***
+
+<p align="center">
+  <a
+
+  ⠀ ⠀
+
+<p align="center">
+  <a
+    
+   ![](https://files.catbox.moe/qvq2jl.png)
+
+<p align="center">
+  <a
+
+  ⠀ ⠀
+
 
 <p align="center">
   <img src="https://raw.githubusercontent.com/T0R4X/forreadme/5d77695666209b8d8f60589304b0e80341c42c7a/syringeblood.png" alt="Syringe Blood" width="650">
@@ -119,7 +147,7 @@
   
 
 <p align="center">
-  <img src="https://raw.githubusercontent.com/T0R4X/forreadme/5d77695666209b8d8f60589304b0e80341c42c7a/syringeblood.png" alt="Syringe Blood" width="650">
+  <img src="https://files.catbox.moe/qvq2jl.png">
 </p>
 
 
@@ -253,8 +281,9 @@
 
 <p align="center">
   <a
+    
+   ![](https://files.catbox.moe/qvq2jl.png)
 
-  ![](https://github.com/T0R4X/forreadme/blob/5ddb43c296d51f5553eb5b0f2b6f4cdb11ab9449/tumblr_c9499a8e05f45607191893f86b1750fc_efed3770_2048.png)
 
 <p align="center">
   <img src="https://raw.githubusercontent.com/T0R4X/forreadme/5d77695666209b8d8f60589304b0e80341c42c7a/syringeblood.png" alt="Syringe Blood" width="650">
@@ -290,8 +319,8 @@
 
 <p align="center">
   <a
-
-  ![](https://github.com/T0R4X/forreadme/blob/5ddb43c296d51f5553eb5b0f2b6f4cdb11ab9449/tumblr_41047cbc7bec2c1c500ad43387af29c7_f57c5f2d_2048.png)
+    
+   ![](https://files.catbox.moe/qvq2jl.png)
 
 
 
