@@ -134,7 +134,7 @@
 
   - *20+ . not very active on pt (maybe),,,*
   
-  - *INT WITH ME!! I don't bite ^o^^ (ᵗʰᵒᵘᵍʰ, ᴵ'ᵐ ᵛᵉʳʸ ᵃʷᵏʷᵃʳᵈ ᵃⁿᵈ ˡᵃᶜᵏ ᵒᶠ ʷᵒʳᵈˢ ʷʰᵉⁿ ᵗᵃˡᵏⁱⁿᵍ ᵗᵒ ⁿᵉʷ ᶠʳⁱᵉⁿᵈˢ ᵒʳ ˢᵗʳᵃⁿᵍᵉʳˢ ᵖˡˢ ᵇᵃʳᵉ ʷⁱᵗʰ ᵐᵉ)*
+  - *INT WITH ME!! I don't bite (ᵗʰᵒᵘᵍʰ, ᴵ'ᵐ ᵛᵉʳʸ ᵃʷᵏʷᵃʳᵈ ᵃⁿᵈ ˡᵃᶜᵏ ᵒᶠ ʷᵒʳᵈˢ ʷʰᵉⁿ ᵗᵃˡᵏⁱⁿᵍ ᵗᵒ ⁿᵉʷ ᶠʳⁱᵉⁿᵈˢ ᵒʳ ˢᵗʳᵃⁿᵍᵉʳˢ ᵖˡˢ ᵇᵃʳᵉ ʷⁱᵗʰ ᵐᵉ)*
 
   - *C.H freely anytime!!!* **(unless stated / offtb , may C.H freely only if party)**
 
@@ -162,15 +162,15 @@
   *Diagnosed with mild autism*
 
   *I CANNOT control my anger so I may lash out at you, I'm sorry if this ever happens*
-  *+ will CRASH OUT out of nowhere so hold me back and calm me down okpls ok*
+  *+ will LASH OUT out of nowhere so try to cheer me up / calm me down*
 
-  *Stuttering skittish thing*
+  *Stuttering skittish thing . . .*
 
   *I make sxual / brainrot jokes, please let me know if you are uncomfortable with it especially if you're a minor.*
   
   *I tend to say random bs to avoid awkward tension*
 
-  *I can show signs that I hate you ok? ok. no this is **not** a joke i can hate you even if you are a friend of mine* **(party not included they are cool)**
+  *I can show signs that I hate you ok? ok. this is not a joke i can hate you even if you are a friend of mine* **(party not included they are cool)**
 
   *Whenever I'm upset and went to your area but distancing away, I expect you to interact first pls*
 
