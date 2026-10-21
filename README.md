@@ -161,7 +161,7 @@
 
   ⠀ ⠀
   
-    <details close>
+    <details closed>
 <summary>IMPORTANT / BYI !!</summary>
 
   ### *<ins>Note</ins> :*
