@@ -4,6 +4,11 @@
   [@ˢʰⁱᵖ-ᵗᵒʷⁿ (ᴴᵉᵃᵛʸᵐᵉᵈⁱᶜ)](https://github.com/ship-town) . [@ᶜᵒˢᵖˡᵃʸᵗᵒʷⁿ (ᴹᵉᵈⁱᶜ)](https://github.com/cosplaytown) . [@ᴾᵒⁿʸᵗᵒʷⁿˢ-ʳᵉʷᵃʳᵈˢ (ᴹᵉᵈⁱᶜ)](https://github.com/Ponytowns-rewards) . [@ᶠᴼᴸᴷᵀᴼᵂᴺ (ᴹᵉᵈⁱᶜ)](https://github.com/FOLKTOWN) . [@ᵖᵒⁿʸᵗᵒʷⁿᶜᵒˢᵖˡᵃʸᵉʳˢ (ᴹᵉᵈⁱᶜ)](https://github.com/ponytowncosplayers) . [@ᵖᵒⁿʸᵃᶜʰⁱᵉᵛᵉᵐᵉⁿᵗˢ (ᵀʳᵘᵐᵃⁿ)](https://github.com/ponychievements) . [@ᵖᵗ-ʰᵃˡˡ-ᵒᶠ-ᵐᵉᵈⁱᵃ (ᴴᵉˡˡ & ʸᵒᵘ)](https://github.com/pt-hall-of-media) . [@ᵗⁱᵗˡᵉʰᵒᵃʳᵈ (ᴹᵉᵈⁱᶜ)](https://github.com/titlehoard) . [@ᵐᵘˢⁱᶜ-ᵗᵒʷⁿ (ᴰʳᶠᵉᵉˡᴳᵒᵒᵈ)](https://github.com/music-town) . [@ᵏᵃᵒᵗᵒʷⁿ (ᴹᵉᵈⁱᶜ)](https://github.com/kaotown) []() []() []() []() []()
 
 
+p align="center">
+  <a
+  
+  Yes , I am Herbert Ludwig and Herbert Ludwig is me . 
+
 
 <p align="center">
   <a
@@ -156,8 +161,12 @@
 
   ⠀ ⠀
   
+    <details close>
+<summary>IMPORTANT / BYI !!</summary>
 
   ### *<ins>Note</ins> :*
+
+  *It's pathetic if you are trying to be me lmfao*
 
   *Diagnosed with mild autism*
 
