@@ -161,9 +161,6 @@
 
   ⠀ ⠀
   
-    <details closed>
-<summary>IMPORTANT / BYI !!</summary>
-
   ### *<ins>Note</ins> :*
 
   *It's pathetic if you are trying to be me lmfao*
