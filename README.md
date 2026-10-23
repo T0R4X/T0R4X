@@ -141,7 +141,7 @@
   
   - *INT WITH ME!! I don't bite (ᵗʰᵒᵘᵍʰ, ᴵ'ᵐ ᵛᵉʳʸ ᵃʷᵏʷᵃʳᵈ ᵃⁿᵈ ˡᵃᶜᵏ ᵒᶠ ʷᵒʳᵈˢ ʷʰᵉⁿ ᵗᵃˡᵏⁱⁿᵍ ᵗᵒ ⁿᵉʷ ᶠʳⁱᵉⁿᵈˢ ᵒʳ ˢᵗʳᵃⁿᵍᵉʳˢ ᵖˡˢ ᵇᵃʳᵉ ʷⁱᵗʰ ᵐᵉ)*
 
-  - *C.H freely anytime!!!* **(unless stated / offtb , may C.H freely only if party)**
+  - *C.H freely anytime* **(unless stated / offtb , may C.H freely only if party)**
 
   - *I block & hide freely*
 
@@ -171,6 +171,8 @@
   *+ will LASH OUT out of nowhere so try to cheer me up / calm me down*
 
   *Stuttering skittish thing . . .*
+
+  *I don't forgive easily*
 
   *I make sxual / brainrot jokes, please let me know if you are uncomfortable with it especially if you're a minor.*
   
