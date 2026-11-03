@@ -178,8 +178,6 @@
   
   *I tend to say random bs to avoid awkward tension*
 
-  *I can show signs that I hate you ok? ok. this is not a joke i can hate you even if you are a friend of mine* **(party not included they are cool)**
-
   *Whenever I'm upset and went to your area but distancing away, I expect you to interact first pls*
 
   
