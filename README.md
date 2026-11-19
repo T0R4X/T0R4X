@@ -161,26 +161,6 @@
 
   ⠀ ⠀
   
-  ### *<ins>Note</ins> :*
-
-  *It's pathetic if you are trying to be me lmfao*
-
-  *Diagnosed with mild autism*
-
-  *I CANNOT control my anger so I may lash out at you, I'm sorry if this ever happens*
-  *+ will LASH OUT out of nowhere so try to cheer me up / calm me down*
-
-  *Stuttering skittish thing . . .*
-
-  *I don't forgive easily*
-
-  *I make sxual / brainrot jokes, please let me know if you are uncomfortable with it especially if you're a minor.*
-  
-  *I tend to say random bs to avoid awkward tension*
-
-  *Whenever I'm upset and went to your area but distancing away, I expect you to interact first pls*
-
-  
 
 <p align="center">
   <a
