@@ -143,7 +143,7 @@
 
   - *C.H freely anytime* **(unless stated / offtb , may C.H freely only if party)**
 
-  - *I block & hide freely*
+  - *I block & hide freely* **I unfriend people with no hesitation lmao , if they are weird or ootfs are problematic**
 
 <p align="center">
   <a
